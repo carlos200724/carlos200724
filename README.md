@@ -1,16 +1,13 @@
-## Hi there 👋
+## boas vindas ao meu perfil 🖤
 
-<!--
-**carlos200724/carlos200724** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+meu nome e carlos danirl dos santos nogueira
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+estou estudando sobre pod
+gosto de anda de boi com os mlk
+gosto de masca fumo 
+gosto de tomar terere
+gosto de jogar futebol
+gosto de sair de noite 
+e ce querer saber mais coisa sobre min 
+mais n entre contata cmg nao porque tenho namorada pelo instragram
+mais chama no whatsapp 997183618 😘
